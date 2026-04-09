@@ -7,7 +7,7 @@
 ![](https://litter.catbox.moe/loniz1tuwt84qx2b.png)
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀[![](https://litter.catbox.moe/6y3vrc9kddftdfj4.png)](https://xneogim.straw.page)
-⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[![](https://litter.catbox.moe/ikoo8jh7r123377n.png)](https://pronouns.cc/@Xen0pus)
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[![](https://litter.catbox.moe/ikoo8jh7r123377n.png)](https://pronouns.cc/@jirachix)
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀[![](https://litter.catbox.moe/vu4vjp4y0clm476j.png)](https://d0zing.atabook.org/)
 
